@@ -1,5 +1,3 @@
-# [download](https://github.com/)
-
 # 🚀 GTA V Mod Menu 2024 🚀
 
 
